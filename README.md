@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @clairegzco
+- 👋 Hi, I’m @clairecodesign
 - 👀 I’m interested in Design, Photography
 - 🌱 I’m currently learning UX Design
 - 💞️ I’m looking to collaborate on anything design related
